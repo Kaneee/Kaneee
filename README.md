@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hey there 👋
+
+My name is Kane and i'm a graphic designer and web developer with over 4+ Years of experience, i work with businesses, firms and individuals to excel there business and branding with the use of online presence. i have great experience in using software such as Adobe Photoshop, Illustrator and lightroom, I have worked with many clients and worked with brands and campaigns such as Nova AIO, Chi Proxies, Thor Telecom and the YANA a fundraiser aimed to bring friends and famlies together to play video games together and raise money for those suffering mental health and also to key workers who have put them self on the front-line whilst COVID-19 is taking place. 
+
 
 <!--
 **Kaneee/Kaneee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
